@@ -9,6 +9,11 @@
 <p align="center"> 
 <img width="99" height="56" alt="d28" src="https://github.com/user-attachments/assets/638a6238-3f08-423c-b25b-9817026bb1c3" />
 <img width="99" height="56" alt="d29" src="https://github.com/user-attachments/assets/5997ba2f-e2dc-4313-b331-19d937e2640e" />
+</p>
+
+&nbsp;
+
+<p align="center">
 <img width="99" height="56" alt="d87" src="https://github.com/user-attachments/assets/8dd69a1c-409d-4a3d-903d-54f23ac05df4" />
 <img width="99" height="55" alt="d79" src="https://github.com/user-attachments/assets/0df12fe0-17d3-431a-95dd-705ab711143f" />
 <img width="101" height="57" alt="d52" src="https://github.com/user-attachments/assets/11e0fd57-f69d-4552-a508-f2d6b1d9298a" />
@@ -33,6 +38,7 @@
    $${\color{#e6aec4}Not\space very\space many\space DNI's,\space just\space 𝐃𝐎𝐍'𝐓\space 𝐁𝐄\space a\space 𝑫𝑰𝑺𝑮𝑼𝑺𝑻𝑰𝑵𝑮\space loser\space and\space 𝐃𝐎𝐍'𝐓\space 𝐁𝐄\space 𝐈𝐍\space 𝑷𝑹𝑶𝑩𝑳𝑬𝑴𝑨𝑻𝑰𝑪\space 𝑭𝑨𝑵𝑫𝑶𝑴𝑺\space thanks.}$$ </details>
 </div> 
 
+&nbsp;
  
 <p align="center">
   <picture>
