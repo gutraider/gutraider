@@ -2,7 +2,7 @@
   <picture>
     <source media="(prefers-color-scheme: dark)" srcset="https://github.com/user-attachments/assets/3e911912-3c9b-47fa-bd5e-8902d749c630">
     <source media="(prefers-color-scheme: light)" srcset="https://github.com/user-attachments/assets/3e911912-3c9b-47fa-bd5e-8902d749c630">
-   <img width="80%" height="80%" alt="Untitled285_20260727174935" src="https://github.com/user-attachments/assets/3e911912-3c9b-47fa-bd5e-8902d749c630" />
+   <img width="60%" height="60%" alt="Untitled285_20260727174935" src="https://github.com/user-attachments/assets/3e911912-3c9b-47fa-bd5e-8902d749c630" />
   </picture>
 </p>
 
@@ -14,6 +14,8 @@
 <img width="101" height="57" alt="d52" src="https://github.com/user-attachments/assets/11e0fd57-f69d-4552-a508-f2d6b1d9298a" />
 </p>
 
+ &nbsp;
+ 
 <div align=center>
   <details> 
     <summary style="color: #9c0202;">$${\color{#9c0202}𝕾𝖎𝖒𝖔𝖓\space 𝖘𝖆𝖞𝖘\space ...}$$
@@ -40,6 +42,7 @@
   </picture>
 </p>
 
+&nbsp;
 
 <div align="center">
   <p align="center">
@@ -52,7 +55,12 @@
 <p align="center">
   <img width="150" height="20" alt="h39" src="https://github.com/user-attachments/assets/c175d918-5199-443a-9da2-dd537da3977d" />
 <img width="150" height="20" alt="h8" src="https://github.com/user-attachments/assets/8f9ba4aa-1d3e-4564-ac42-303e2ed51dd6" />
-<img width="150" height="20" alt="a91" src="https://github.com/user-attachments/assets/7e91c235-2354-4f31-aa48-e38031a4f770" />
+</p>
+
+  &nbsp;
+
+  <p align="center">
+  <img width="150" height="20" alt="a91" src="https://github.com/user-attachments/assets/7e91c235-2354-4f31-aa48-e38031a4f770" />
 <img width="150" height="20" alt="a71" src="https://github.com/user-attachments/assets/3b406e4d-4d4b-4cda-a751-66a8e54c0f92" />
 <img width="150" height="20" alt="n2" src="https://github.com/user-attachments/assets/27b16407-5233-4987-8e2b-ee6f52b1e29c" />
 </p>
@@ -61,6 +69,6 @@
   <picture>
     <source media="(prefers-color-scheme: dark)" srcset="https://github.com/user-attachments/assets/15479964-4288-4a90-aef8-68bcac2bbded">
     <source media="(prefers-color-scheme: light)" srcset="https://github.com/user-attachments/assets/15479964-4288-4a90-aef8-68bcac2bbded">
-   <img width="80%" height="80%" alt="Untitled285_20260727175205_edit_107838309290836" src="https://github.com/user-attachments/assets/15479964-4288-4a90-aef8-68bcac2bbded" />
+   <img width="60%" height="60%" alt="Untitled285_20260727175205_edit_107838309290836" src="https://github.com/user-attachments/assets/15479964-4288-4a90-aef8-68bcac2bbded" />
   </picture>
 </p>
