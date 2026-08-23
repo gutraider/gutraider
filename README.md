@@ -24,7 +24,7 @@
    
    $${\color{#474343}—}$$
     
-   $${\color{#e83c1e}"I\space have\space mental\space eelness."\space ⛦\space (M/W\space the\space biggest\space fruitcake\space @Ringoramaz.)}$$
+   $${\color{#e83c1e}VA/AMATEUR\space ARTIST,\space I'on\space give\space my\space socials\space unless\space you\space ask\space for\space 'em\space on\space dc\space ⛦\space (M/W\space the\space biggest\space fruitcake\space @Ringoramaz.)}$$
    
    $${\color{#e83c1e}(Note:\space Using\space terms\space of\space endearment\space (e.g.,\space babe\space or\space love)\space in\space a\space 𝑪𝑶𝑴𝑷𝑳𝑬𝑻𝑬𝑳𝒀\space 𝑷𝑳𝑨𝑻𝑶𝑵𝑰𝑪\space manner\space is\space a\space habit\space of\space mine,\space so\space please\space tell\space me\space if\space that\space makes\space you\space uncomfortable\space before\space interacting.)}$$
 
