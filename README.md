@@ -18,11 +18,13 @@
  
 <div align=center>
   <details> 
-    <summary style="color: "#c42381">$${\color{#c42381}𝕮𝖑𝖎𝖈𝖐\space 𝖒𝖊\space 𝖋𝖔𝖗\space 𝖘𝖔𝖒𝖊\space 𝖎𝖓𝖋𝖔𝖗𝖒𝖆𝖙𝖎𝖔𝖓\space ...}$$
+    <summary style="color: "#5c2461">$${\color{#5c2461}𝕮𝖑𝖎𝖈𝖐\space 𝖒𝖊\space 𝖋𝖔𝖗\space 𝖘𝖔𝖒𝖊\space 𝖎𝖓𝖋𝖔𝖗𝖒𝖆𝖙𝖎𝖔𝖓\space ...}$$
       <img src="https://github.com/user-attachments/assets/2b8ec5bb-f860-4364-9396-0f918d94919a" alt="Click to expand" width="100">
   </summary> 
+
+   $${\color{#530f59}—}$$
    
-   $${\color{#e3d3f4}—}$$
+   $${\color{#960354}ᕳ♡ᕲ}$$
     
    $${\color{#d0b4e0}VA/AMATEUR\space ARTIST,\space I'on\space give\space my\space socials\space unless\space you\space ask\space for\space 'em\space on\space dc\space ⛦\space (M/W\space the\space biggest\space fruitcake\space @Ringoramaz.)}$$
    
