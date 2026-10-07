@@ -7,11 +7,11 @@
 </p>
 
 <p align="center"> 
-<img width="10%" height="10%" alt="d28" src="https://github.com/user-attachments/assets/e8e6c460-1732-443d-965c-56860d66d6a0" />
-<img width="10%" height="10%" alt="d29" src="https://github.com/user-attachments/assets/56596904-0b48-48f5-8a48-c2f7a1e4565e" />
-<img width="10%" height="10%" alt="d87" src="https://github.com/user-attachments/assets/070a8163-224c-447a-a38c-4d153f540e57" />
-<img width="10%" height="10%" alt="d79" src="https://github.com/user-attachments/assets/743fd3a8-73ff-4066-91c8-16c75b5a9f5d" />
-<img width="10%" height="10%" alt="d52" src="https://github.com/user-attachments/assets/80a4aa5c-5e62-499f-ba49-d5d890b2111d" />
+<img width="10%" height="10%" alt="d28" src="https://github.com/user-attachments/assets/b49f1772-1f87-404a-b682-ee484036ca40" />
+<img width="10%" height="10%" alt="d29" src="https://github.com/user-attachments/assets/60d56d3f-5c17-42cc-b395-e6d5bfc2e39a" />
+<img width="10%" height="10%" alt="d87" src="https://github.com/user-attachments/assets/cc8cc3b0-6d55-48e0-8106-cc27a1bff957" />
+<img width="10%" height="10%" alt="d79" src="https://github.com/user-attachments/assets/03a0aed0-7ba7-4ba9-896d-3c10950ef1d5" />
+<img width="10%" height="10%" alt="d52" src="https://github.com/user-attachments/assets/4e076d34-358d-493c-af79-086504f12125" />
 </p>
 
  &nbsp;
@@ -19,7 +19,7 @@
 <div align=center>
   <details> 
     <summary style="color: "#5c2461">$${\color{#5c2461}𝕮𝖑𝖎𝖈𝖐\space 𝖒𝖊\space 𝖋𝖔𝖗\space 𝖘𝖔𝖒𝖊\space 𝖎𝖓𝖋𝖔𝖗𝖒𝖆𝖙𝖎𝖔𝖓\space ...}$$
-      <img src="https://github.com/user-attachments/assets/2b8ec5bb-f860-4364-9396-0f918d94919a" alt="Click to expand" width="100">
+      <img src="https://github.com/user-attachments/assets/652c8921-89d7-4e46-b031-252575e9e463" alt="Click to expand" width="100">
   </summary> 
 
    $${\color{#530f59}—}$$
@@ -70,6 +70,7 @@
    <img width="60%" height="150" alt="Untitled285_20260727175205_edit_107838309290836" src="https://github.com/user-attachments/assets/28533944-bab4-4286-8a5c-50bfd9bc03bf" />
   </picture>
 </p>
+
 
 
 
