@@ -28,11 +28,11 @@
     
    $${\color{#DBD8E3}VA/AMATEUR\space ARTIST,\space I'on\space give\space my\space socials\space unless\space you\space ask\space for\space 'em\space on\space dc\space ⛦\space (M/W\space the\space biggest\space fruitcake\space @Ringoramaz.)}$$
    
-   $${\color{#695d87}(Note:\space Using\space terms\space of\space endearment\space (e.g.,\space babe\space or\space love)\space in\space a\space 𝑪𝑶𝑴𝑷𝑳𝑬𝑻𝑬𝑳𝒀\space 𝑷𝑳𝑨𝑻𝑶𝑵𝑰𝑪\space manner\space is\space a\space habit\space of\space mine,\space so\space please\space tell\space me\space if\space that\space makes\space you\space uncomfortable\space before\space interacting.)}$$
+   $${\color{#807796}(Note:\space Using\space terms\space of\space endearment\space (e.g.,\space babe\space or\space love)\space in\space a\space 𝑪𝑶𝑴𝑷𝑳𝑬𝑻𝑬𝑳𝒀\space 𝑷𝑳𝑨𝑻𝑶𝑵𝑰𝑪\space manner\space is\space a\space habit\space of\space mine,\space so\space please\space tell\space me\space if\space that\space makes\space you\space uncomfortable\space before\space interacting.)}$$
 
-   $${\color{#352b4f}(Additional\space Note:\space I\space also\space have\space a\space 𝐕𝐄𝐑𝐘\space 𝐈𝐍𝐂𝐎𝐍𝐒𝐈𝐒𝐓𝐄𝐍𝐓\space 𝐒𝐓𝐘𝐋𝐄\space when\space making\space ponies\space so\space don't\space be\space surprised\space if\space they\space seem\space drastically\space different\space from\space eachother.)}$$ 
+   $${\color{#5b4a85}(Additional\space Note:\space I\space also\space have\space a\space 𝐕𝐄𝐑𝐘\space 𝐈𝐍𝐂𝐎𝐍𝐒𝐈𝐒𝐓𝐄𝐍𝐓\space 𝐒𝐓𝐘𝐋𝐄\space when\space making\space ponies\space so\space don't\space be\space surprised\space if\space they\space seem\space drastically\space different\space from\space eachother.)}$$ 
    
-   $${\color{#251940}Not\space very\space many\space DNI's,\space just\space 𝐃𝐎𝐍'𝐓\space 𝐁𝐄\space a\space 𝑫𝑰𝑺𝑮𝑼𝑺𝑻𝑰𝑵𝑮\space loser\space and\space 𝐃𝐎𝐍'𝐓\space 𝐁𝐄\space 𝐈𝐍\space 𝑷𝑹𝑶𝑩𝑳𝑬𝑴𝑨𝑻𝑰𝑪\space 𝑭𝑨𝑵𝑫𝑶𝑴𝑺\space thanks.}$$ </details>
+   $${\color{#351f69}Not\space very\space many\space DNI's,\space just\space 𝐃𝐎𝐍'𝐓\space 𝐁𝐄\space a\space 𝑫𝑰𝑺𝑮𝑼𝑺𝑻𝑰𝑵𝑮\space loser\space and\space 𝐃𝐎𝐍'𝐓\space 𝐁𝐄\space 𝐈𝐍\space 𝑷𝑹𝑶𝑩𝑳𝑬𝑴𝑨𝑻𝑰𝑪\space 𝑭𝑨𝑵𝑫𝑶𝑴𝑺\space thanks.}$$ </details>
 </div> 
 
 &nbsp;
