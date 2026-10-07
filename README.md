@@ -26,7 +26,7 @@
    
    $${\color{#5C5470}ᕳ♡ᕲ}$$
     
-   $${\color{#DBD8E3}VA/AMATEUR\space ARTIST,\space I'on\space give\space my\space socials\space unless\space you\space ask\space for\space 'em\space on\space dc\space ⛦\space (M/W\space the\space biggest\space fruitcake\space @Ringoramaz.)}$$
+   $${\color{#DBD8E3}VA/AMATEUR\space ARTIST,\space I'on\space give\space my\space socials\space unless\space you\space ask\space for\space 'em\space on\space 𝑑𝑐.}$$
    
    $${\color{#807796}(Note:\space Using\space terms\space of\space endearment\space (e.g.,\space babe\space or\space love)\space in\space a\space 𝑪𝑶𝑴𝑷𝑳𝑬𝑻𝑬𝑳𝒀\space 𝑷𝑳𝑨𝑻𝑶𝑵𝑰𝑪\space manner\space is\space a\space habit\space of\space mine,\space so\space please\space tell\space me\space if\space that\space makes\space you\space uncomfortable\space before\space interacting.)}$$
 
